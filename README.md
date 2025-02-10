@@ -26,5 +26,5 @@ Don’t let tasks overwhelm you any longer. Embrace the future of productivity w
 Get started today and transform the way you work!
 
 
-
+The exe version: https://www.epicpxls.com/items/ai-smarter-task-reminder-v1-0
 
